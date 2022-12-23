@@ -1,3 +1,3 @@
-Christmas Animation 
+Christmas Animation
 
 Snow falling Christmas animation
